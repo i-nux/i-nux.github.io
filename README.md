@@ -1,1 +1,1 @@
-# i-nux.github.io
+# i-nux.com
